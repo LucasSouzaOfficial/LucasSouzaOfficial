@@ -1,1 +1,1 @@
-A simple man interested in a simple things
+A simple man interested at simple things
